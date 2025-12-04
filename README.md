@@ -25,12 +25,6 @@ gifs
 ![Sword+Trail](https://github.com/user-attachments/assets/32393ac8-cbd1-48a1-bea8-f7cb56573a47)
 ![POM](https://github.com/user-attachments/assets/686388fe-805e-4459-9a96-e245dd95d5a4)
 
-![Post+Process](https://github.com/user-attachments/assets/01974a2d-c1b3-4dee-ad8e-831078ebc8d2)
-![Post+Process](https://github.com/user-attachments/assets/90a7930c-8cef-42a6-aa2e-71e0be48429e)
-![Post+Process](https://github.com/user-attachments/assets/a64a7e53-ce4f-4729-82d3-c2d17ad6c5dd)
-
-
-
 images
 
 ![Screenshot_20251202_015644_Gallery](https://github.com/user-attachments/assets/08ca1506-a646-46e8-aac9-bf9787ad6737)
@@ -57,7 +51,6 @@ MPC
 ![IMG-20251203-WA0023](https://github.com/user-attachments/assets/ac1e80eb-1329-4fdd-9251-aa890e6141b7)
 ![IMG-20251203-WA0020](https://github.com/user-attachments/assets/f96299d6-01ac-4620-9a4e-e37d3f07c9fb)
 ![IMG-20251203-WA0022](https://github.com/user-attachments/assets/fbf9564c-f4ff-4d3d-80d3-5de98f132e8e)
-
 
 DMI
 ![IMG-20251203-WA0011](https://github.com/user-attachments/assets/8e993bba-34e4-4edb-8529-607e40a058f2)
