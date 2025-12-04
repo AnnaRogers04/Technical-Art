@@ -52,6 +52,13 @@ MPC
 ![IMG-20251203-WA0022](https://github.com/user-attachments/assets/fbf9564c-f4ff-4d3d-80d3-5de98f132e8e)
 
 
+DMI
+![IMG-20251203-WA0011](https://github.com/user-attachments/assets/8e993bba-34e4-4edb-8529-607e40a058f2)
+![IMG-20251203-WA0010](https://github.com/user-attachments/assets/86c4bb4c-97b9-4388-b37e-3c8dc33b9534)
+
+
+
+
 
 
 
