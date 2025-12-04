@@ -66,6 +66,26 @@ Post Process
 
 ![IMG-20251203-WA0016](https://github.com/user-attachments/assets/eabf1193-48c8-4121-83a6-722802d65811)
 
+height based blending
+![IMG-20251203-WA0026](https://github.com/user-attachments/assets/d73c6d2e-418a-4f9f-89b2-5cf68296979e)
+![IMG-20251203-WA0029](https://github.com/user-attachments/assets/79ab235a-6f1c-486d-b59f-0adf1ff688b7)
+![IMG-20251203-WA0025](https://github.com/user-attachments/assets/2896444b-c9ce-4596-95dc-8ff45e037ebb)
+![IMG-20251203-WA0033](https://github.com/user-attachments/assets/63b10231-de8c-49d9-bb30-8c053905f9d9)
+![IMG-20251203-WA0024](https://github.com/user-attachments/assets/898f08bb-d02c-4fc4-bfc6-b199640688c7)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
