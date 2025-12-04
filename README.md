@@ -57,6 +57,11 @@ DMI
 ![IMG-20251203-WA0011](https://github.com/user-attachments/assets/8e993bba-34e4-4edb-8529-607e40a058f2)
 ![IMG-20251203-WA0010](https://github.com/user-attachments/assets/86c4bb4c-97b9-4388-b37e-3c8dc33b9534)
 
+POM
+![IMG-20251203-WA0013](https://github.com/user-attachments/assets/3af026d6-1584-4ccb-a654-7add1f71abd0)
+![IMG-20251203-WA0015](https://github.com/user-attachments/assets/fd8c7c14-4914-4c4a-9445-b1d24d6868cf)
+![IMG-20251203-WA0014](https://github.com/user-attachments/assets/37f3f1de-f98d-45e6-87d9-a19cd5996583)
+
 
 
 
