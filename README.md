@@ -77,6 +77,12 @@ height based blending
 ![IMG-20251203-WA0028 (1)](https://github.com/user-attachments/assets/88125266-c3b3-49f3-9fa5-e06db2f5b141)
 ![IMG-20251203-WA0032 (1)](https://github.com/user-attachments/assets/ac499755-1d2f-43dc-b771-fa599aff04ee)
 
+Foliage
+![20251111_171014](https://github.com/user-attachments/assets/aa37a6c7-047e-46ed-bbff-f343a6918ef2)
+![20251111_171834](https://github.com/user-attachments/assets/cc4ca64d-49b5-4ecd-9424-419bd901b681)
+![20251111_161951](https://github.com/user-attachments/assets/13e0d68b-e64b-4645-bc6a-cf1d36c492a6)
+
+
 
 
 
