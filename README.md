@@ -26,6 +26,20 @@ gifs
 ![Sword+Trail](https://github.com/user-attachments/assets/32393ac8-cbd1-48a1-bea8-f7cb56573a47)
 ![POM](https://github.com/user-attachments/assets/686388fe-805e-4459-9a96-e245dd95d5a4)
 
+client step by step
+
+![IMG-20251205-WA0035](https://github.com/user-attachments/assets/89abbd61-6c64-4f36-ad3d-45c72ac62177)
+![IMG-20251205-WA0030](https://github.com/user-attachments/assets/6bba724f-e9ed-49e8-8c7b-ed210efdc4bc)
+![IMG-20251205-WA0036](https://github.com/user-attachments/assets/435f0bf4-725d-4d83-907c-b7f631c97a0d)
+![IMG-20251205-WA0037](https://github.com/user-attachments/assets/ab16e4dd-e430-4d45-ac1e-900ab14ee894)
+![IMG-20251205-WA0031](https://github.com/user-attachments/assets/06d08c25-5661-448d-898a-668727728f4c)
+![IMG-20251205-WA0029](https://github.com/user-attachments/assets/9ee9e635-697b-42fc-b5cb-aee34500aa9d)
+![IMG-20251205-WA0039](https://github.com/user-attachments/assets/e1d29239-3bd5-4a9a-8114-fe289f99a041)
+![IMG-20251205-WA0034](https://github.com/user-attachments/assets/bcd35ea3-7edd-40a7-a597-f9b37f31e0af)
+![IMG-20251205-WA0033](https://github.com/user-attachments/assets/224b19a5-6341-4d4d-9764-2f78c87a15fc)
+![IMG-20251205-WA0032](https://github.com/user-attachments/assets/769008b9-2b75-4ea3-ab34-d627298257fa)
+![IMG-20251205-WA0038](https://github.com/user-attachments/assets/2d2be775-8403-4584-aa81-b238c545b3b2)
+![IMG-20251205-WA0040](https://github.com/user-attachments/assets/0bb904c2-9c14-4ddf-8912-93ac0928db59)
 
 client
 
