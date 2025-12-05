@@ -93,6 +93,8 @@ omni direction and blend
 Attack Combo
 ![IMG-20251203-WA0053](https://github.com/user-attachments/assets/e179cbe5-3af0-470c-b3cc-4b001fb6ee23)
 ![IMG-20251203-WA0054](https://github.com/user-attachments/assets/cb873f78-0540-4e93-92e6-f2fc96d2202a)
+![IMG-20251203-WA0058](https://github.com/user-attachments/assets/5e9b0172-d27c-4255-8424-4ccbbe7ff4a2)
+![IMG-20251203-WA0059](https://github.com/user-attachments/assets/9d979353-4e86-40c8-8438-6ae53a684696)
 
 
 
