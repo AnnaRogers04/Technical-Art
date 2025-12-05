@@ -97,11 +97,48 @@ Attack Combo
 ![IMG-20251203-WA0059](https://github.com/user-attachments/assets/9d979353-4e86-40c8-8438-6ae53a684696)
 
 
+Decal Complete
+![IMG-20251205-WA0016](https://github.com/user-attachments/assets/0bc90fe3-89f8-4291-8de2-bf3353afaa33)
+![IMG-20251205-WA0013](https://github.com/user-attachments/assets/d21d8470-7e54-4b80-baee-9d35bae70c0c)
+![IMG-20251202-WA0020](https://github.com/user-attachments/assets/2b4dbdd8-5a78-4646-9b82-8bdbd17ec887)
+![IMG-20251203-WA0001](https://github.com/user-attachments/assets/20002a2f-da93-47c5-b588-743ef7cf49bf)
+![IMG-20251203-WA0000](https://github.com/user-attachments/assets/2cebb712-e96d-4d28-b6fd-b10749380813)
+
+Decal broken
+![IMG-20251202-WA0019](https://github.com/user-attachments/assets/a2f0515f-3e80-4d37-8e3a-bc5e7fe8ab7f)
+![IMG-20251202-WA0017](https://github.com/user-attachments/assets/adf6815d-b52d-47d0-aa85-ee28f2aa9a40)
+![IMG-20251202-WA0013](https://github.com/user-attachments/assets/bfab929f-1f93-4f00-8f83-a676d698da81)
+![IMG-20251202-WA0018](https://github.com/user-attachments/assets/c9bbcaf6-4e64-4171-a181-7a4895c4e27e)
+
+
+Fire
+![IMG-20251203-WA0038](https://github.com/user-attachments/assets/f043103c-6304-49f1-9d8b-79956123c94b)
+
+Fireball
+![IMG-20251203-WA0040](https://github.com/user-attachments/assets/3bb5bbd3-c8f7-40fa-b88d-a473aa239bcc)
+![IMG-20251203-WA0041](https://github.com/user-attachments/assets/88f6884e-7655-4c4e-bf86-0e121eff6b96)
+
+
+Lightning
+
+![IMG-20251203-WA0042](https://github.com/user-attachments/assets/c16dbe5b-e449-46f1-96ad-e9a8170067e6)
+![IMG-20251203-WA0043](https://github.com/user-attachments/assets/c0beb8f8-2110-4023-b45f-5434b55f1915)
 
 
 
 
 
+SubUV
+![IMG-20251203-WA0045](https://github.com/user-attachments/assets/b4b951fb-63df-4a05-9280-4e961d2f6991)
+![IMG-20251203-WA0044](https://github.com/user-attachments/assets/b6cef482-61d0-45de-bb18-d950f588c63d)
+![IMG-20251203-WA0046](https://github.com/user-attachments/assets/20abaf74-9e40-42d5-976e-7366db2d6eaf)
+![IMG-20251203-WA0047](https://github.com/user-attachments/assets/05e7435a-4a0f-4d46-8b4f-6230937e463a)
+![IMG-20251205-WA0018](https://github.com/user-attachments/assets/21255d96-4807-4f30-837e-5966b8969799)
+![IMG-20251205-WA0017](https://github.com/user-attachments/assets/f851936a-b61b-4765-99ae-f40374e85497)
+
+
+Slash Attack
+![IMG-20251205-WA0019](https://github.com/user-attachments/assets/d199b960-0faf-4c8b-b259-e4fd9a45aace)
 
 
 
