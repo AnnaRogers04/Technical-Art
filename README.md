@@ -123,9 +123,8 @@ Lightning
 
 ![IMG-20251203-WA0042](https://github.com/user-attachments/assets/c16dbe5b-e449-46f1-96ad-e9a8170067e6)
 ![IMG-20251203-WA0043](https://github.com/user-attachments/assets/c0beb8f8-2110-4023-b45f-5434b55f1915)
-
-
-
+![IMG-20251205-WA0018](https://github.com/user-attachments/assets/21255d96-4807-4f30-837e-5966b8969799)
+![IMG-20251205-WA0017](https://github.com/user-attachments/assets/f851936a-b61b-4765-99ae-f40374e85497)
 
 
 SubUV
@@ -133,8 +132,7 @@ SubUV
 ![IMG-20251203-WA0044](https://github.com/user-attachments/assets/b6cef482-61d0-45de-bb18-d950f588c63d)
 ![IMG-20251203-WA0046](https://github.com/user-attachments/assets/20abaf74-9e40-42d5-976e-7366db2d6eaf)
 ![IMG-20251203-WA0047](https://github.com/user-attachments/assets/05e7435a-4a0f-4d46-8b4f-6230937e463a)
-![IMG-20251205-WA0018](https://github.com/user-attachments/assets/21255d96-4807-4f30-837e-5966b8969799)
-![IMG-20251205-WA0017](https://github.com/user-attachments/assets/f851936a-b61b-4765-99ae-f40374e85497)
+
 
 
 Slash Attack
