@@ -26,6 +26,31 @@ gifs
 ![Sword+Trail](https://github.com/user-attachments/assets/32393ac8-cbd1-48a1-bea8-f7cb56573a47)
 ![POM](https://github.com/user-attachments/assets/686388fe-805e-4459-9a96-e245dd95d5a4)
 
+
+client
+
+![IMG-20251203-WA0108](https://github.com/user-attachments/assets/95177d44-3c74-4bd3-a606-2ee735805361)
+![IMG-20251203-WA0104](https://github.com/user-attachments/assets/9ef210da-ed05-45b5-b13d-c8e8455c3f04)
+![IMG-20251203-WA0097](https://github.com/user-attachments/assets/0252dbba-dcf7-44fc-b977-dd0b306c88f3)
+![IMG-20251203-WA0113](https://github.com/user-attachments/assets/644e46ff-c316-49eb-ab7b-fe80ac0b96d8)
+![IMG-20251203-WA0098](https://github.com/user-attachments/assets/4ef7c28c-3222-4e58-ba05-001547861d55)
+![IMG-20251203-WA0103](https://github.com/user-attachments/assets/287513c5-b204-4e09-af76-3b9715cb9130)
+![IMG-20251203-WA0105](https://github.com/user-attachments/assets/6420b01a-4e4f-42d3-b098-41619fa8b675)
+![IMG-20251203-WA0092](https://github.com/user-attachments/assets/455a37c1-4dd7-4331-8c22-52d28d6ef657)
+![IMG-20251203-WA0094](https://github.com/user-attachments/assets/dac3a3e4-c07f-4efb-b7f8-7d8c7ecc84e6)
+
+
+
+
+
+
+
+
+
+
+
+
+
 images
 
 ![Screenshot_20251202_015644_Gallery](https://github.com/user-attachments/assets/08ca1506-a646-46e8-aac9-bf9787ad6737)
