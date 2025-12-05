@@ -81,6 +81,8 @@ Foliage
 ![20251111_171014](https://github.com/user-attachments/assets/aa37a6c7-047e-46ed-bbff-f343a6918ef2)
 ![20251111_171834](https://github.com/user-attachments/assets/cc4ca64d-49b5-4ecd-9424-419bd901b681)
 ![20251111_161951](https://github.com/user-attachments/assets/13e0d68b-e64b-4645-bc6a-cf1d36c492a6)
+![20251111_161921](https://github.com/user-attachments/assets/647dc78d-130a-432a-9193-27686e47c4f6)
+![20251111_161740](https://github.com/user-attachments/assets/c0188a9d-eae3-4eab-8e86-8b3df3555b59)
 
 
 
