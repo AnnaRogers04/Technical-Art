@@ -138,6 +138,8 @@ SubUV
 Slash Attack
 
 ![IMG-20251205-WA0019](https://github.com/user-attachments/assets/d199b960-0faf-4c8b-b259-e4fd9a45aace)
+![IMG-20251205-WA0015](https://github.com/user-attachments/assets/ec652252-374e-4174-b2ad-b0e98933bcc0)
+![IMG-20251205-WA0014](https://github.com/user-attachments/assets/cf11ca60-5185-4b3f-bff3-5bf193be0909)
 
 
 
