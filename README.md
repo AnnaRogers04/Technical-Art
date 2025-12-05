@@ -26,6 +26,12 @@ gifs
 ![Sword+Trail](https://github.com/user-attachments/assets/32393ac8-cbd1-48a1-bea8-f7cb56573a47)
 ![POM](https://github.com/user-attachments/assets/686388fe-805e-4459-9a96-e245dd95d5a4)
 
+Client comms
+![IMG-20251205-WA0051](https://github.com/user-attachments/assets/57b43db4-0a58-42ff-92ad-993674bcfb45)
+![IMG-20251205-WA0052](https://github.com/user-attachments/assets/a9c3e2cd-c9cb-47db-a61c-3f22c4d1fa0a)
+![IMG-20251205-WA0053](https://github.com/user-attachments/assets/607df734-1e64-4b15-b0d8-ae34881ca593)
+![IMG-20251205-WA0050](https://github.com/user-attachments/assets/52f8600b-d642-46d4-8cd0-172eefce9903)
+
 client step by step
 
 ![IMG-20251205-WA0035](https://github.com/user-attachments/assets/89abbd61-6c64-4f36-ad3d-45c72ac62177)
