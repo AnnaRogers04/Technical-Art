@@ -40,17 +40,6 @@ client
 ![IMG-20251203-WA0094](https://github.com/user-attachments/assets/dac3a3e4-c07f-4efb-b7f8-7d8c7ecc84e6)
 
 
-
-
-
-
-
-
-
-
-
-
-
 images
 
 ![Screenshot_20251202_015644_Gallery](https://github.com/user-attachments/assets/08ca1506-a646-46e8-aac9-bf9787ad6737)
