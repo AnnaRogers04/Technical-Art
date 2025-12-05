@@ -28,6 +28,12 @@ gifs
 
 plugins
 
+![IMG-20251205-WA0061](https://github.com/user-attachments/assets/7d2b2cdf-f222-456f-93d2-06bc37c8e29a)
+![IMG-20251205-WA0060](https://github.com/user-attachments/assets/9169e52a-119b-41d6-b814-60eafb3de699)
+![IMG-20251205-WA0062](https://github.com/user-attachments/assets/5c38eb93-55ad-488f-9234-a5f9f516dea4)
+
+
+
 ![IMG-20251205-WA0054](https://github.com/user-attachments/assets/5b5ba3e8-4d37-41c6-b922-8a02ece3cb70)
 ![IMG-20251205-WA0055](https://github.com/user-attachments/assets/df577a8c-4dc4-4b05-94de-5dec3fba90ad)
 ![IMG-20251205-WA0056](https://github.com/user-attachments/assets/10eeabf6-dce3-471a-86fc-e69ac91d7c2f)
