@@ -102,6 +102,8 @@ Decal Complete
 ![IMG-20251205-WA0013](https://github.com/user-attachments/assets/d21d8470-7e54-4b80-baee-9d35bae70c0c)
 ![IMG-20251203-WA0001](https://github.com/user-attachments/assets/20002a2f-da93-47c5-b588-743ef7cf49bf)
 ![IMG-20251203-WA0000](https://github.com/user-attachments/assets/2cebb712-e96d-4d28-b6fd-b10749380813)
+![IMG-20251205-WA0023](https://github.com/user-attachments/assets/ad623c6a-57b6-4d18-a978-cb65750de9e4)
+
 
 Decal broken
 ![IMG-20251202-WA0019](https://github.com/user-attachments/assets/a2f0515f-3e80-4d37-8e3a-bc5e7fe8ab7f)
