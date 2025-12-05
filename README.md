@@ -84,6 +84,10 @@ Foliage
 ![20251111_161921](https://github.com/user-attachments/assets/647dc78d-130a-432a-9193-27686e47c4f6)
 ![20251111_161740](https://github.com/user-attachments/assets/c0188a9d-eae3-4eab-8e86-8b3df3555b59)
 
+omni direction and blend
+![IMG-20251203-WA0055](https://github.com/user-attachments/assets/35b8584d-12cb-465f-9eb0-1813c21efcbf)
+![IMG-20251203-WA0056](https://github.com/user-attachments/assets/f949c14f-b3b7-4271-88c5-aeefdb9b2a8d)
+
 
 
 
